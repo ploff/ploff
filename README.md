@@ -1,4 +1,4 @@
-<img src="ц."></img>
+ц.
 
 <!--
 **wadda dog doin?
