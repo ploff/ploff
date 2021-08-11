@@ -1,4 +1,4 @@
-<img src="https://psv4.userapi.com/c536436/u621333540/docs/d8/cdda68bbf466/Skrillyakh_Ebashit_Zhosko_Pizdaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa.gif"></img>
+<img src="ц."></img>
 
 <!--
 **wadda dog doin?
