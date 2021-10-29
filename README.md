@@ -1,9 +1,6 @@
 ![](https://mastodon.ml/system/custom_emojis/images/000/040/478/original/ablobcatattention.png)
 ![](https://mastodon.ml/system/custom_emojis/images/000/040/519/original/ablobcatattentionreverse.png)
 
-прыгають.
-ана хуя?
-
 <!--
 **wadda dog doin?
 
