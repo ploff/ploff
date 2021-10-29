@@ -1,17 +1,7 @@
 ![](https://mastodon.ml/system/custom_emojis/images/000/040/478/original/ablobcatattention.png)
+![](https://emojis.slackmojis.com/emojis/images/1613773113/13688/meow_dance.gif)
 ![](https://mastodon.ml/system/custom_emojis/images/000/040/519/original/ablobcatattentionreverse.png)
 
 <!--
-**wadda dog doin?
-
-- 🔭 I’m currently working on bankate
-- 🌱 I’m currently learning piss
-- 👯 I’m looking to collaborate on snaipr gaming
-- 🤔 I’m looking for help with snaipr gaming
-- 💬 Ask me about piss
-- 📫 How to reach me: piss
-- 😄 Pronouns: piss/piss
-- ⚡ Fun fact: piss
-
-snaipr gaming
+чё ты тут делаешь? эта группа для крутых!
 -->
