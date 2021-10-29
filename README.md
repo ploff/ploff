@@ -1,11 +1,11 @@
-![eto ya](https://mastodon.ml/system/accounts/avatars/000/087/332/original/53ec0c53a82743a3.png)
+![](https://mastodon.ml/system/custom_emojis/images/000/040/478/original/ablobcatattention.png)
+![](https://mastodon.ml/system/custom_emojis/images/000/040/519/original/ablobcatattentionreverse.png)
 
-ето я))
+прыгають.
+ана хуя?
 
 <!--
 **wadda dog doin?
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on bankate
 - 🌱 I’m currently learning piss
